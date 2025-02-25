@@ -1,2 +1,2 @@
 # AIdiocy
-What is dumb was better?
+What if dumb was better?
